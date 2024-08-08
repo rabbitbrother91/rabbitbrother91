@@ -1,6 +1,5 @@
-I Am A Happy Dreamer & IT Scientist Engineer.
+I am a Happy Dreamer & IT Scientist Engineer.
 
-The Dream If You Don't Throw Away, It Will Come True.
-My Dream Is To Be A Good Person.
+The Dream If You Don't Throw Away, It Will Come True - My Dream is to be a Good Person.
 
-Information Technology Is At Peak Of The Entire Industry Pyramid.
+Information Technology is at Peak of The Entire Industry Pyramid.
