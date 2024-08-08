@@ -1,4 +1,7 @@
-                                                 I AM A HAPPY DREAMER & IT SCIENTIST ENGINEER
+I Am A Happy Dreamer & IT Scientist Engineer.
 
-                                             THE DREAM IF YOU DON'T THROW AWAY, IT WILL COME TRUE
-                                       INFORMATION TECHNOLOGY IS AT PEAK OF THE ENTIRE INDUSTRY PYRAMID.
+The Dream If You Don't Throw Away, It Will Come True.
+
+My Dream Is To Be A Good Person.
+
+Information Technology Is At Peak Of The Entire Industry Pyramid.
