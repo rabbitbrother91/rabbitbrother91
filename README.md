@@ -1,4 +1,4 @@
-I am a Happy Dreamer & IT Scientist Engineer.
+I am a Happy Dreamer and IT Scientist Engineer.
 
 The Dream If You Don't Throw Away, It Will Come True. My Dream is to be a Good Person. 
 
